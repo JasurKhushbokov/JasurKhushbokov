@@ -5,4 +5,4 @@ Have a look at my portfolio items in this profile. Once you feel we are a good f
 
 Looking forward to hearing from you
 
-[linkedin]("www.linkedin.com/in/jasur-khushbokov-307543289") ||  [Telegram]("https://t.me/Jasur_Khushbokov")
+[linkedin](https://www.linkedin.com/in/jasur-khushbokov-307543289) || [Telegram](https://t.me/Jasur_Khushbokov)
